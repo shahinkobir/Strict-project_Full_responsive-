@@ -1,0 +1,1 @@
+# Strict-project_Full_responsive
